@@ -4,7 +4,7 @@ ill addd more sustainable things here and pretty assets but first i want to make
 ***
 # ***INFO;***
 
-i like things like mlp. homestuck. ranfren. roblox. sally face, and slime rancher
+i like things like mlp. homestuck. roblox. sally face, and slime rancher
 
 i dont need tonetags but i dont mind using them for others
 
