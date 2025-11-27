@@ -12,7 +12,7 @@ i am usually online throughout 8pm - 7am CDT
 
 I dont mind inspo but i do mind copying and colorpicking
 
-**w2i** strangers can cuddle + hide whenever if im not with somebody already. im offtab 13/6
+**w2i** strangers can cuddle + hide whenever if im not with somebody already. im afk 24/7 so sometimes whispering doesnt get my attention. if you need me to see it just leave me a message on my strawpage and ill get to it
 ***
 # ***BEFORE YOU INTERACT;***
 
